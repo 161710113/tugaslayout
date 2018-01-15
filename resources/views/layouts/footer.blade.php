@@ -1,0 +1,1 @@
+<hr>Copyright 2017 ○ Haikal Maulana Firdaus</hr>
